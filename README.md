@@ -14,7 +14,7 @@ he / they pronouns !! and bisexual and trans !
 i like Persona, yugioh, ff7 and ff15 , MP100, Pokemon , cof , puppet combo , and etc 
  > interact pls if u like any of these !!
 
-if you wanna know more about me (like my dni , byi , and my other interest go to my strawpage! >> https://r4naurrr2.straw.page
+if you wanna know more about me (like my dni , byi , and my other interest go to my strawpage! >> https://akirenaurrr.straw.page
 
 ![IMG_6272](https://github.com/user-attachments/assets/a144306c-5618-43ac-9424-fda0b4cc4d00)
 
